@@ -1,1 +1,2 @@
-systems soul particle art wave music sk math 
+When tasks are accomplished and duties are successful
+The 100 families all say "we are naturally so"
